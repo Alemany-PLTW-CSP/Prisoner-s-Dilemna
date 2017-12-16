@@ -1,2 +1,4 @@
 # Prisoner-s-Dilemna
-Nathan stop 🛑 copying my code!!!
+Nathan Byrd, stop 🛑 copying my code!!!
+Petemans is angry 😡 😠 😤 !!!
+I have @copyRight !!!
